@@ -1,6 +1,6 @@
 # 💻 Kms Auto Net 2026 — Free 2026 Download
 
-![Version](https://img.shields.io/badge/Version-2026-blue?style=flat-square) ![Price](https://img.shields.io/badge/Price-Free-success?style=flat-square)
+![Version](https://img.shields.io/badge/Version-2026-blue?style=flat-square) ![Price](https://img.shields.io/badge/Price-Free-success?style=flat-square) ![Type](https://img.shields.io/badge/Type-KMS%20Activator-E53935?style=flat-square)
 
 Download KMS Auto net 2026 for free — the latest 2026 version, tested and working on all current Windows and Office releases. **100% free. No registration. No hidden fees.**
 
